@@ -8,3 +8,6 @@
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
  
 ノ тσ тнєη вє¢σмє тнє мαѕqυєяα∂є . ☣︎
+
+
+gguuuyss ... im too lazy to edit this profile.... check out my pronouns page instead,,,,,,,,
